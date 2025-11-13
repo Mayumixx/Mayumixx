@@ -28,7 +28,7 @@
   <a href="https://tiktok.com/@yien.shea">
     <img src="https://i.pinimg.com/1200x/8e/55/0f/8e550f59109f90f441f75f0cbeba7270.jpg" width="30" alt="TikTok"/>
   </a>
-  &nbsp; <a href="https://tiktok.com/@yien.shea" style="color:#cc0000; font-weight:bold; text-decoration:none;">@luvy4miii</a>
+  &nbsp; <a href="https://www.tiktok.com/@luvy4miii" style="color:#cc0000; font-weight:bold; text-decoration:none;">@luvy4miii</a>
 </p>
 
 
