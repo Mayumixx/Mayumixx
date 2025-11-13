@@ -13,8 +13,8 @@
 
 
 <p align="center">
-  <img src="https://cdn-icons-png.flaticon.com/512/2111/2111370.png" width="30" alt="Discord"/>
-  &nbsp; <span style="color:#cc0000; font-weight:bold;">@yien.shea</span>
+  <img src="https://i.pinimg.com/736x/19/81/3b/19813b94c8db40affc7d32d80075e32e.jpg" width="30" alt="Discord"/>
+  &nbsp; <span style="color:#cc0000; font-weight:bold;">@luvy4mi</span>
 </p>
 
 <p align="center">
