@@ -1,7 +1,7 @@
 
  <p align="center">
   <a href="https://shionsy.carrd.com" style="color:#cc0000; font-family:'Courier New', monospace; font-size:16px; text-decoration:none;">
-    “A lantern’s glow may be faint, but it is enough to lead the traveler home.”
+    "Words aren't the only thing that tell people what you're thinking"
   </a>
 </p>                                                                                                                                                                           <img src="https://raw.githubusercontent.com/patootiemunchkin/patootiemunchkin/main/1d545f57dc22d4561d81366cba9b9651.gif" width="100%">
 
