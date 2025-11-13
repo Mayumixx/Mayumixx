@@ -19,16 +19,16 @@
 
 <p align="center">
   <a href="https://www.patreon.com/">
-    <img src="https://cdn-icons-png.flaticon.com/512/2111/2111541.png" width="30" alt="Patreon"/>
+    <img src="https://i.pinimg.com/736x/1a/0f/e4/1a0fe45b263ce42f6d931612d09bd967.jpg" width="30" alt="Patreon"/>
   </a>
-  &nbsp; <a href="https://www.patreon.com/" style="color:#b30000; font-weight:bold; text-decoration:none;">萧一尘: yenyen</a>
+  &nbsp; <a href="https://www.patreon.com/" style="color:#b30000; font-weight:bold; text-decoration:none;">ଓ - ʏᴜᴍɪ - ʀᴇᴀᴅ ʙᴇғᴏʀ ɪɴᴛ !</a>
 </p>
 
 <p align="center">
   <a href="https://tiktok.com/@yien.shea">
-    <img src="https://cdn-icons-png.flaticon.com/512/3046/3046126.png" width="30" alt="TikTok"/>
+    <img src="https://i.pinimg.com/1200x/8e/55/0f/8e550f59109f90f441f75f0cbeba7270.jpg" width="30" alt="TikTok"/>
   </a>
-  &nbsp; <a href="https://tiktok.com/@yien.shea" style="color:#cc0000; font-weight:bold; text-decoration:none;">@yien.shea</a>
+  &nbsp; <a href="https://tiktok.com/@yien.shea" style="color:#cc0000; font-weight:bold; text-decoration:none;">@luvy4miii</a>
 </p>
 
 
