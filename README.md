@@ -9,14 +9,8 @@
 
 
 
-<h3 align="center"> 🍄 INFAMOUS SOCIALS 🧧 </h3>
+<h3 align="center">  ‧₊ ᵎᵎ 🍒 ⋅ ˚✮ 𝒮𝑜𝒸𝒾𝒶𝓁𝓈 .ᐟ </h3>
 
-<p align="center">
-  <a href="https://facebook.com/ShuaShyion">
-    <img src="https://cdn-icons-png.flaticon.com/512/733/733547.png" width="30" alt="Facebook"/>
-  </a>
-  &nbsp; <a href="https://facebook.com/ShuaShyion" style="color:#b30000; font-weight:bold; text-decoration:none;">Shua Shyion</a>
-</p>
 
 <p align="center">
   <img src="https://cdn-icons-png.flaticon.com/512/2111/2111370.png" width="30" alt="Discord"/>
