@@ -194,16 +194,16 @@
 </p>
 
                                                                                                                                               
-# 🔥 Links
+#  ⋆ 𐙚 ˚.  𝐿𝒾𝓃𝓀𝓈 🍥 
 
 <p align="center">
-  <a href="https://luvmwahh.carrd.co/" target="_blank">🌹 Carrd</a> │ 
-  <a href="https://Yumixx.atabook.org" target="_blank">🍒 Atabook</a>
+  <a href="https://luvmwahh.carrd.co/" target="_blank">💌 Carrd</a> │ 
+  <a href="https://Yumixx.atabook.org" target="_blank">🍓 Atabook</a>
 
 
 
 <p align="center">
-  <em>“The moon does not rush to be full, yet it always shines when the night needs it most.”</em>
+  <em>“You don't need to tell me twice!”</em>
 </p>
 
 ---
