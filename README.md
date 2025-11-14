@@ -51,7 +51,7 @@
 # ⋆ 𐙚 ˚. 𝒜𝒷𝑜𝓊𝓉 𝓂𝑒 🍰
 
 - ╰┈➤ 🍒 **ESFP-T .ᐟ**; I use **she/her** pronouns.  
-- ╰┈➤☎️ I'm a very hyper person! So feel free to talk to me anytime or just ramble about anything!  
+- ╰┈➤☎️ I'm a very hyper person! So feel free to talk to me anytime or just ramble about anything! And I'm also a very sensitive person, so please mind your words.  
 - ╰┈➤❤️ I enjoy connecting and speaking with other people, though I sometimes need my own personal space to recharge my social battery!  
 - ╰┈➤💌 My languages are: **English** and **Tagalog**  
   
