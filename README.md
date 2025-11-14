@@ -91,12 +91,12 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/05431a08-f525-4f54-86fa-7edb2ba6f0f2" alt="banner" width="100%" />
+  <img src="https://i.pinimg.com/originals/b7/6d/d1/b76dd161dd749632caf024d0103a42e6.gif" alt="banner" width="100%" />
 </p>
 
 
 <p align="center">
-  <em> “My beloved is a brave, noble, and gracious special someone... He’s saved my life; I’ve looked up to him ever since I was young. But, I want to catch up to him more, and become even stronger for him. Although he might not remember me well. We never really talked. I want to protect him.” 
+  <em> “I just have to get stronger than you! I'll beat you down as much as I need to. Our home is worth fighting for! I don't want anyone else to get hurt.” 
 </em>
 </p>
 
