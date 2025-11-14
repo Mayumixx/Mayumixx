@@ -110,23 +110,21 @@
 </p>
 
 
-# 🍒 Before You Interact (Games / Chat)
+# ⋆ 𐙚 ˚. 𝐵𝑒𝒻𝑜𝓇𝑒 𝒴𝑜𝓊 𝐼𝓃𝓉𝑒𝓇𝒶𝒸𝓉 (𝒞𝒽𝒶𝓉) ☎️
 
-- 🔥 **Whisper to interact** — I’m often semi-AFK or off-tab, so please be patient if I take a while to reply. 
+- ╰┈➤💌 I'm mostly with my friends, so if I take too long to reply, I apologize. 
  
-- 🌹 **Ask permission** for cuddle/hide interactions (C+H); I may feel uncomfortable, especially with people I don’t know well.  
+- ╰┈➤❤️ Ask permission for cuddle/hide interactions (C+H), especially if I don’t know well.  
 
-- 🎈 **Feel free to take inspiration** or copy from me, but don’t claim it as your own.  
+- ╰┈➤🩸 If you add any of my socials, **please update me first** — I only accept people I know.  
 
-- 🩸 If you add any of my socials, **please update me first** — I only accept people I know.  
+- ╰┈➤🧣 Sometimes I’ll need **personal space when I get drained.** So, please respect that.  
 
-- 🧣 Sometimes I’ll need **personal space or time** with someone, so please understand.  
+- ╰┈➤🍓 I play many games but may not always be active (mostly when exam day comes up).  
 
-- 🍓 I play many games but may not always be active (real life keeps me busy).  
+- ╰┈➤❤️ We can alway play together.           
 
-- ❤️ We can play together — just ask for the code! *(And yes please)*            
-
-- 📕 I’m mostly online on weekends.
+- ╰┈➤📕 I’m mostly online on weekends (it depends).
        
                                                                
 <p align="center">
