@@ -190,15 +190,15 @@
   
 </p>
  <p align="center">
-  <img src="https://github.com/user-attachments/assets/dfcb0041-fe57-43ce-8cd8-45a4c8451f3c" alt="banner" width="100%" />
+  <img src="https://i.pinimg.com/736x/eb/ea/62/ebea62fa7a67117af919b1c419c09b9c.jpg" alt="banner" width="100%" />
 </p>
 
                                                                                                                                               
 # 🔥 Links
 
 <p align="center">
-  <a href="https://shionsy.carrd.co/" target="_blank">🌹 Carrd</a> │ 
-  <a href="https://Shua.atabook.org" target="_blank">🍒 Atabook</a>
+  <a href="https://luvmwahh.carrd.co/" target="_blank">🌹 Carrd</a> │ 
+  <a href="https://Yumixx.atabook.org" target="_blank">🍒 Atabook</a>
 
 
 
