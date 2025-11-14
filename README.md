@@ -135,28 +135,24 @@
   
 </p>
 
-# 🚫 𓆩 DNI LIST 𓆪 🚫  
+# 🚫 ⋆ 𐙚 ˚. 𝒟𝒩𝐼 𝐿𝐼𝒮𝒯  🚫  
 *(Do Not Interact / Not Welcome)*  
 
-- 🍅 **Real-life gore enjoyers**  
+- 💢 **Real-life gore enjoyers**    
 
-- 🔥 **Proship / darkship / “fiction doesn’t affect reality” crowd**  
+- 💢 **Supporters of harmful paraphilias** (pedo, zoo, necro, rape, incest, etc.)  
 
-- 🚫 **Supporters of harmful paraphilias** (pedo, zoo, necro, rape, incest, etc.)  
-
-- 💢 **Rude for no reason and doesn`t know what privacy is**
-  
-- 💥 **Communities that glorify real-life horrors** (historical/OCs are fine if not romanticizing atrocities) 
+- 💢 **Rude for no reason** 
  
-- 🩸 **True crime fandom communities** (casual listeners okay, just don’t mention)  
+- 💢 **True crime fandom communities** (casual listeners okay, just don’t mention)  
 
-- ❤️‍🩹 **Homophobic people**  
+- 💢 **Homophobic people**  
 
-- 🍎 **Racist and insensitive people**  
+- 💢 **Racist and insensitive people**  
 
-- 🏮 **Pedo defenders / enablers**  
+- 💢 **Pedo defenders / enablers**  
 
-- 🍓 **Overly negative or critical without reason**   
+- 💢 **Overly negative or critical without reason**   
                                                                                                                                                                                                                               
                                                                                                                                      
 </p>
