@@ -48,9 +48,9 @@
 
 
 
-# ❤️ About Me
+# ⋆ 𐙚 ˚. 𝒜𝒷𝑜𝓊𝓉 𝓂𝑒 🍰
 
-- 🎈 **INFP**; I use **they/them** pronouns.  
+- 🎈 **ESFP-T .ᐟ**; I use **she/her** pronouns.  
 - 🩸 I live with a **personality disorder** and **ADHD**, which may sometimes affect my behavior. Please respect me as I respect you.  
 - 🧣 I enjoy connecting with others, though I sometimes need personal space.  
 - 🍒 Languages: **English** and **Tagalog**, with some knowledge of other languages.  
