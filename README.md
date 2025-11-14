@@ -164,17 +164,13 @@
   
 </p>
                                                                                                                                         
-# 🧧  BE MY FRIEND (int) 🧧  
+# 🌸 ⋆ 𐙚 ˚. 𝐵𝐸 𝑀𝒴 𝐹𝑅𝐼𝐸𝒩𝒟 (𝒾𝓃𝓉) 🌸  
 
-- 🍒 **Gacha / Artist**  
-
-- 🩸 **Authors / Writers**  
-
-- 🏮 **People who enjoy Stardew Valley**  
+- 🏮 **People who enjoy playing evade**  
 
 - 🌶️ **Relatively good, normal people**  
 
-- 🔥 **Kind CODM players**  
+- 🔥 **Kind ML players**  
 
 - ❤️‍🔥 **Obsessed with SKY: Children of the Light**  
 
