@@ -50,10 +50,10 @@
 
 # ⋆ 𐙚 ˚. 𝒜𝒷𝑜𝓊𝓉 𝓂𝑒 🍰
 
-- 🎈 **ESFP-T .ᐟ**; I use **she/her** pronouns.  
-- 🩸 I live with a **personality disorder** and **ADHD**, which may sometimes affect my behavior. Please respect me as I respect you.  
-- 🧣 I enjoy connecting with others, though I sometimes need personal space.  
-- 🍒 Languages: **English** and **Tagalog**, with some knowledge of other languages.  
+- ╰┈➤ 🍒 **ESFP-T .ᐟ**; I use **she/her** pronouns.  
+- ╰┈➤☎️ I'm a very hyper person! So feel free to talk to me anytime or just ramble about anything!  
+- ╰┈➤❤️ I enjoy connecting and speaking with other people, though I sometimes need my own personal space to recharge my social battery!  
+- ╰┈➤💌 My languages are: **English** and **Tagalog**  
   
   <p align="center">
   <img src="https://github.com/user-attachments/assets/ae983028-31f5-440f-a00b-8817d0fd7c85" width="80">
