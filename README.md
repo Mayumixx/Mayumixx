@@ -1,6 +1,6 @@
 
  <p align="center">
-  <a href="https://shionsy.carrd.com" style="color:#cc0000; font-family:'Courier New', monospace; font-size:16px; text-decoration:none;">
+  <a href="https://luvmwahh.carrd.com/" style="color:#cc0000; font-family:'Courier New', monospace; font-size:16px; text-decoration:none;">
     "Words aren't the only thing that tell people what you're thinking"
   </a>
 </p>                                                                                                                                                                           
