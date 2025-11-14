@@ -208,7 +208,7 @@
 
 ---
 
-<img src="https://github.com/user-attachments/assets/9ec6ee5a-11ab-45b2-9697-12d8b17f1bcb" alt="download" width="100%">
+<img src="https://i.pinimg.com/originals/c7/8d/fb/c78dfb78bc8ab21c6fa20bc16dd63953.gif" alt="download" width="100%">
 
 
 <p align="center">
@@ -216,78 +216,10 @@
   <img src="https://github.com/user-attachments/assets/dfd24bd4-03ab-48b9-be06-959db33a6a5d" width="120">
   <img src="https://github.com/user-attachments/assets/dfd24bd4-03ab-48b9-be06-959db33a6a5d" width="120">
   
-  
-</p>
-
-
-<div align="center">
-
-  <!-- Profile Views (Red) -->
-  <img src="https://komarev.com/ghpvc/?username=d-weeknd&label=—%20💋&color=red&style=for-the-badge" alt="💋" />
-
-  <!-- Custom Badge (Orange) -->
-  <img src="https://img.shields.io/badge/—%20🎀-56895-orange?style=for-the-badge" alt="🎀" />
-
-</div>
-
-
-<div align="center">
-
-  <!-- Carrd (Yellow) -->
-  <a href="https://shionsy.carrd.co/" target="_blank">
-    <img src="https://img.shields.io/badge/—🚩-pink?style=for-the-badge" alt="Carrd" />
-  </a>
-
-  <!-- Discord (Grey) -->
-  <a href="https://shionsy.carrd.co/" target="_blank">
-    <img src="https://img.shields.io/badge/—yien.shea-grey?style=for-the-badge&logo=discord&logoColor=white" alt="Discord" />
-  </a>
-
-</div>
-
-
-<div align="center">
-
-![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=d-weeknd&layout=compact&theme=radical&hide_border=true)
-</div>                                                                                                                                                        
-<div align="center">
-
-![Followers](https://img.shields.io/github/followers/d-weeknd?style=for-the-badge&color=cb4c46&label=🔖)
-
 </div>
 
 <p align="center">
-  <a href="https://github.com/d-weeknd">
-    <img src="https://github-readme-stats.vercel.app/api?username=d-weeknd&show_icons=true&theme=radical&title_color=cb4c46&icon_color=960018" alt="GitHub Stats" />
-  </a>
-</p>                                                                                                                                
-<p align="center">
-  <a href="https://github.com/ryo-ma/github-profile-trophy">
-    <img src="https://github-profile-trophy.vercel.app/?username=d-weeknd&theme=radical&row=1&no-frame=true&margin-w=15" alt="trophy" />
-  </a>
-</p>
-
-
-</p>
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/ae983028-31f5-440f-a00b-8817d0fd7c85" width="80">
-  <img src="https://github.com/user-attachments/assets/ae983028-31f5-440f-a00b-8817d0fd7c85" width="80">
-  <img src="https://github.com/user-attachments/assets/ae983028-31f5-440f-a00b-8817d0fd7c85" width="80">
-  <img src="https://github.com/user-attachments/assets/ae983028-31f5-440f-a00b-8817d0fd7c85" width="80">
-  
-</p>
-
-[![Activity Graph](https://github-readme-activity-graph.vercel.app/graph?username=d-weeknd&bg_color=000000&color=cb4c46&line=cb4c46&point=ffffff&area=true&hide_border=true)](https://github.com/ashutosh00710/github-readme-activity-graph)
-
-
-<div align="center">
-
-![Stars](https://img.shields.io/github/stars/d-weeknd?style=for-the-badge&color=orange&label=🍒)
-
-</div>
-
-<p align="center">
-  <em>“A pearl forms slowly, hidden within the shell, unseen by the world. But the sea knows its treasure, and so must you. Do not measure your worth by who notices you now; your time to shine will come when the tides reveal you.”
+  <em>“For the longest time, I wanted to do... everything. I wanted to fight for the planet, convince people to stand up - take action with us... But it's like... I always come up short.”
 </em>
 </p>
 
