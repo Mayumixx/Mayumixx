@@ -166,23 +166,19 @@
                                                                                                                                         
 # 🌸 ⋆ 𐙚 ˚. 𝐵𝐸 𝑀𝒴 𝐹𝑅𝐼𝐸𝒩𝒟 (𝒾𝓃𝓉) 🌸  
 
-- 🏮 **People who enjoy playing evade**  
+- 💌 **People who enjoy playing evade**  
 
-- 🌶️ **Relatively good, normal people**  
+- ❤️ **Relatively good, normal people**  
 
-- 🔥 **Kind ML players**  
+- 🍒 **Kind ML players**  
 
-- ❤️‍🔥 **Obsessed with SKY: Children of the Light**  
+- 🍓 **Obsessed with watching anime**  
 
-- 🚨 **COOKIE RUN FAN!** 
+- 🍥 **COOKIE RUN FAN!** 
 
-- 🧣 **Non-toxic LoL players**
+- 💢 **Non-toxic valorant players**
 
-- 🍓 **Bloodstrike!**  
-
-- ❤️‍🩹 **Reverse:1999**  
-
-- 🍅 **Windbreaker(manhwa)**  
+- ☎️ **Arsenal players**  
           
                                                                                       
  <p align="center">
