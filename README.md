@@ -77,13 +77,13 @@
   </p>
 <br>
   <p align="center">
-<img width="480" height="35" alt="Image" src="https://github.com/user-attachments/assets/04d3e884-d9c1-4f51-b983-45307ef49205" />
+<img width="480" height="35" alt="Image" src="https://64.media.tumblr.com/4bf40599add44d4dc312ace61db7bca4/6de6867a0341634d-6b/s1280x1920/1155a464ace83a203eb23cd4f4f854056acd5294.pnj" />
 </p>
   <br>
   <p align="center">
-    :)  <br>
-    ^_^ 
-<img width="400" height="521" alt="Image" src="https://github.com/user-attachments/assets/de0c840a-4dc6-4928-bb83-ee619a1c147e" />  
+    ^-^  <br>
+    0-o 
+<img width="400" height="521" alt="Image" src="https://64.media.tumblr.com/bf420fde32d5a214bd83f90e66f15538/1a02594084ac6193-a5/s500x750/306693b57c4dfe00be65db9e018d2666566508d0.pnj" />  
         O_O  <br>
     ʏᴏᴜ ᴊᴜsᴛ ʟᴏᴠᴇ ᴛᴏ ғᴏʀɢᴇᴛ.ᴅᴏɴ'ᴛ ʏᴏᴜ.
 </p>
