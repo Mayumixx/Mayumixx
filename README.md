@@ -11,7 +11,7 @@
   <br>
 
 <p align="center">
-    ⋆⁺₊❅.    <a href="https://yumicutie.straw.page//">Strawpage</a> ☃︎
+    ⋆⁺₊❅.    <a href="https://yumicutie.straw.page/">Strawpage</a> ☃︎
   <a href="https://https://Yumixx.atabook.org/">Atabook</a> ☃︎
   <a href="https://https://guns.lol/yumiixx">Guns.lol</a> ☃︎ .❅₊⁺⋆
   </p>
