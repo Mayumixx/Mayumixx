@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=darkred&right_color=darkgreen&left_text=Stars !"/>
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=darkred&right_color=darkgreen&left_text=Stars!"/>
   <br>
 
 <p align="center">
