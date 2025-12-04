@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=Mayumixxcolor=6ea7e0&amp;style=plastic&amp;label=Snowflakes"/>  
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=darkred&right_color=darkgreen&left_text=Snowflakes"/>
   <br>
 
 <p align="center">
