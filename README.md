@@ -84,9 +84,9 @@
     ^-^  <br>
     0-o 
 <img width="400" height="521" alt="Image" src="https://64.media.tumblr.com/bf420fde32d5a214bd83f90e66f15538/1a02594084ac6193-a5/s500x750/306693b57c4dfe00be65db9e018d2666566508d0.pnj" />  
-        O_O  <br>
-    ʏᴏᴜ ᴊᴜsᴛ ʟᴏᴠᴇ ᴛᴏ ғᴏʀɢᴇᴛ.ᴅᴏɴ'ᴛ ʏᴏᴜ.
+        >_<  <br>
+    ＩＭ ＨＵＮＧＲＹ．
 </p>
 <p align="center">
-<img width="400" height="521" alt="Image" src="https://github.com/user-attachments/assets/79f1e8fa-f0ae-4638-b325-000f138a9e25" />
+<img width="400" height="521" alt="Image" src="https://64.media.tumblr.com/40f1444e33d55d9fe571911f6965d300/1bbb718940cff8dc-6a/s1280x1920/8e176b391bbcc668b726d38de88c92d8ea27d883.pnj" />
 </p>
