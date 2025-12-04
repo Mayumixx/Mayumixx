@@ -11,10 +11,10 @@
   <br>
 
 <p align="center">
-  ✧˖°.  <a href="https://seildoherty.straw.page/">Strawpage</a> ✘
-  <a href="https://anixmatic.atabook.org/">Atabook</a> ✘
-  <a href="https://guns.lol/seandirectory">Guns.lol</a> ✘
-  <a href="https://toyhou.se/Koshilly">Toyhouse</a> ˖°.✧
+  ✧˖°.  <a href="https://yumicutie.straw.page//">Strawpage</a> ✘
+  <a href="https://https://Yumixx.atabook.org/">Atabook</a> ✘
+  <a href="https://https://guns.lol/yumiixx">Guns.lol</a> ✘
+  <a href="https://nun yet..y">Toyhouse</a> ˖°.✧
   </p>
   <br>
 
