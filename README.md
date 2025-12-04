@@ -35,7 +35,7 @@
 
 <div align="center">
 <details>
-  <summary>𝙋𝙡𝙚𝙖𝙨𝙚 𝙧𝙚𝙖𝙙 𝙩𝙝𝙞𝙨 𝙗𝙚𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩</summary>
+  <summary>𝙋𝙡𝙚𝙖𝙨𝙚 𝙛𝙤𝙧𝙚 𝙮𝙤𝙪 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩</summary>
   <br>
    ᴄ+ʜ ᴀʟᴡᴀʏs ᴇɴᴄᴏᴜʀᴀɢᴇ + ᴄᴏᴠᴇʀ ᴛʀɪɢɢᴇʀ ᴜɴʟᴇss ғʀɪᴇɴᴅs  
   <br> <br>
