@@ -54,3 +54,8 @@ $\color{darkred}{\textsf{over 18 (some are exceptional BUT STILL.), under 13}}$
     </th>
   </tr>
 </table>
+
+<img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj"/>
+
+$\color{darkred}\Huge{\textsf{ᡕᠵデᡁ᠊╾━}}$ <br>
+<img width="1280" height="429" alt="Mayumixx" src="https://64.media.tumblr.com/b8c2e2f9523e706a3c27656fc182d23c/d083df8da3513e0a-e5/s2048x3072/dea5e8658b68a53bc95b383a7fed8e20083fcb1a.pnj"/>
