@@ -28,7 +28,7 @@
 </tr>
 </table>
 
-<a href="https://https://Yumixx.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=ffdaec&center=true&vCenter=true&width=200&height=25&lines=Atabook" alt="Typing SVG" /></a>
+<a href="https://yumixx.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=ffdaec&center=true&vCenter=true&width=200&height=25&lines=Atabook" alt="Typing SVG" /></a>
 
 <img width="2048" height="314" alt="Mayumixx" src="https://64.media.tumblr.com/4b83dd0c03eca478fd15d63f1a43a8b3/c510e59ead6bc50f-05/s1280x1920/5c4d71f6367067c16d43f4c6d8faef7c4e92647e.gifv"/>
 
