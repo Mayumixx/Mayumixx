@@ -1,10 +1,10 @@
 <div align="center">
-<img width="1280" height="429" alt="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj" src="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj"/>
+<img width="1280" height="429" alt="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj" src="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj"/>
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=darkred&right_color=balck&left_text=VISITORS;"/>
-<img src="https://64.media.tumblr.com/cb09f04f1d38ea4f52dec7e3b991d3ab/96812b3b3a743299-18/s75x75_c1/fd588292d43721b6d74e6dc220a60f9103cc1ba8.gifv"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Mayumixx?style=flat&label=FRIENDS;&labelColor=darkred&color=black">
+<img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=red&right_color=lightpink&left_text=VISITORS;"/>
+<img src="https://64.media.tumblr.com/6607e08ffd9ef6695017e0662a020155/d71655547072e652-60/s75x75_c1/46aa21c700ab68ae1cbc762a6485b8f609b49556.gifv"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Mayumixx?style=flat&label=FRIENDS;&labelColor=red&color=lightpink">
 
-<img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj"/>
+<img width="2047" height="60" alt="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj" src="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj"/>
 
 <img align="left" width="300" height="300" alt="https://64.media.tumblr.com/b921c466430f7aa6f4509d516769f345/d083df8da3513e0a-84/s2048x3072/896528946492d3bdb78f47ff85586d3af791bb65.pnj" src="https://64.media.tumblr.com/969d356b2f54c670779f829e62e26a0d/b7bdb20071055bf2-25/s500x750/bc74f6fd3a9c67e21cd2cece0cf8a8fd7e6a016f.pnj"/>
 
