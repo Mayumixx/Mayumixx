@@ -1,12 +1,12 @@
 <div align="center">
 <img width="1280" height="429" alt="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj" src="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj"/>
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=red&right_color=lightpink&left_text=VISITORS;"/>
-<img src="https://64.media.tumblr.com/6607e08ffd9ef6695017e0662a020155/d71655547072e652-60/s75x75_c1/46aa21c700ab68ae1cbc762a6485b8f609b49556.gifv"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Mayumixx?style=flat&label=FRIENDS;&labelColor=red&color=lightpink">
+<img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=red&right_color=lightpink&left_text=Strawberry;"/>
+<img src="https://64.media.tumblr.com/6607e08ffd9ef6695017e0662a020155/d71655547072e652-60/s75x75_c1/46aa21c700ab68ae1cbc762a6485b8f609b49556.gifv"> <img alt="GitHub followers" src="https://img.shields.io/github/followers/Mayumixx?style=flat&label=Friends;&labelColor=red&color=lightpink">
 
 <img width="2047" height="60" alt="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj" src="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj"/>
 
-<img align="left" width="300" height="300" alt="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj" src="https://64.media.tumblr.com/969d356b2f54c670779f829e62e26a0d/b7bdb20071055bf2-25/s500x750/bc74f6fd3a9c67e21cd2cece0cf8a8fd7e6a016f.pnj"/>
+<img align="left" width="300" height="300" alt="https://64.media.tumblr.com/3e52daba926f70f31c3e9d141b4537b6/92e7e431782b7c99-9a/s1280x1920/608998eb255c351decf881c7ddc0d30107f1057e.pnj" src="https://64.media.tumblr.com/966f258de6bcd90c6bdb20285f7ad502/65b9208b29e31825-e3/s250x400/7a85e73c76a7b21cbb376b29450dee1722e6cd8e.pnj"/>
 
   </br>
 
@@ -17,45 +17,45 @@
 <table>
   <tr>
     <th>
-      $\color{darkred}{\textsf{feel free to sit near me/sit with me}}$ <br>
-      $\color{darkred}{\textsf{i'm always online, so feel free to int !}}$ <br>
-      $\color{darkred}{\textsf{i always misspell/disconnect from pt}}$ <br>
-      $\color{darkred}{\textsf{i can be abit much specially when i'm yapping or hyper}}$ <br>
-      $\color{darkred}{\textsf{you can always vent to me}}$ <br>
-      $\color{darkred}{\textsf{feel free to copy/inspo/post me on pinterest}}$ <br>
-      $\color{darkred}{\textsf{i unfriend people who randomly friend me in pt !}}$ <br>
+      $\color{red}{\textsf{feel free to sit near me/sit with me}}$ <br>
+      $\color{red}{\textsf{i'm always online, so feel free to int !}}$ <br>
+      $\color{red}{\textsf{i always misspell/disconnect from pt}}$ <br>
+      $\color{red}{\textsf{i can be abit much specially when i'm yapping or hyper}}$ <br>
+      $\color{red}{\textsf{you can always vent to me}}$ <br>
+      $\color{red}{\textsf{feel free to copy/inspo/post me on pinterest}}$ <br>
+      $\color{red}{\textsf{i unfriend people who randomly friend me in pt !}}$ <br>
 </th>
 </tr>
 </table>
 
-<a href="https://https://Yumixx.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=800e13&center=true&vCenter=true&width=200&height=25&lines=Atabook" alt="Typing SVG" /></a>
+<a href="https://https://Yumixx.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=ffdaec&center=true&vCenter=true&width=200&height=25&lines=Atabook" alt="Typing SVG" /></a>
 
 <img width="2048" height="314" alt="Mayumixx" src="https://64.media.tumblr.com/3c177ae75bb764e5dbce9b75a123b50f/8021c56f9c022ae0-50/s2048x3072/3fb28c0898dd4cd5a91b2be839ec67c741c1786c.gifv"/>
 
-<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/0820208dfaa0c09e8946a3bf077ea4ca/b7bdb20071055bf2-2d/s640x960/9726ed1000cd0799b4531e12c0da0894e55ac302.pnj" />
+<img align="right" width="250" height="300" alt="Image-36" src="https://64.media.tumblr.com/45227a9f7427df0f3887923af7c86129/dd58547afe44d60d-37/s250x400/9ce77e76d2481d5ab1fc157c7d59ec6965414393.pnj" />
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=800e13&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=ffdaec&center=true&vCenter=true&width=200&height=25&lines=Do+Not+Interact" alt="Typing SVG" /></a>
 <table>
   <tr>
     <th>
-$\color{darkred}{\textsf{proshipper/darkshipper, real life gore enjoyer}}$ <br>
-$\color{darkred}{\textsf{anyone who unironically considers themself problematic}}$ <br>
-$\color{darkred}{\textsf{Supporters of harmful paraphilias (pedo, zoo, necro, rape, incest, etc.)}}$ <br>
-$\color{darkred}{\textsf{Pedo defenders / enablers, rude for no reason}}$ <br>
-$\color{darkred}{\textsf{Overly negative or critical without reason}}$ <br>
+$\color{red}{\textsf{proshipper/darkshipper, real life gore enjoyer}}$ <br>
+$\color{red}{\textsf{anyone who unironically considers themself problematic}}$ <br>
+$\color{red}{\textsf{Supporters of harmful paraphilias (pedo, zoo, necro, rape, incest, etc.)}}$ <br>
+$\color{red}{\textsf{Pedo defenders / enablers, rude for no reason}}$ <br>
+$\color{red}{\textsf{Overly negative or critical without reason}}$ <br>
 </th>
 </tr>
 </table>
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=800e13&center=true&vCenter=true&width=250&height=25&lines=Interact+With+Caution" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=ffdaec&center=true&vCenter=true&width=250&height=25&lines=Interact+With+Caution" alt="Typing SVG" /></a>
 <table>
   <tr>
     <th>
-$\color{darkred}{\textsf{over 18 (some are exceptional BUT STILL.), under 13}}$
+$\color{red}{\textsf{over 18 (some are exceptional BUT STILL.), under 13}}$
     </th>
   </tr>
 </table>
 
 <img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj"/>
 
-$\color{darkred}\Huge{\textsf{ᡕᠵデᡁ᠊╾━}}$ <br>
+$\color{lightpink}\Huge{\textsf{ᡕᠵデᡁ᠊╾━}}$ <br>
 <img width="1280" height="429" alt="Mayumixx" src="https://64.media.tumblr.com/b8c2e2f9523e706a3c27656fc182d23c/d083df8da3513e0a-e5/s2048x3072/dea5e8658b68a53bc95b383a7fed8e20083fcb1a.pnj"/>
