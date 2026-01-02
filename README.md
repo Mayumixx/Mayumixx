@@ -55,7 +55,7 @@ $\color{red}{\textsf{over 18 (some are exceptional BUT STILL.), under 13}}$
   </tr>
 </table>
 
-<img width="2047" height="60" alt="tumblr-3219f4cddd6e58dd463a61101e40ffd6-28e4e610-2048-fliter-gold-sunset-channel-blue-mode-normal" src="https://64.media.tumblr.com/bc19df572bdba6c0a03467db9f6af1af/d083df8da3513e0a-49/s2048x3072/54a69fec6c7ff89ff8031a69bb85da5a93690100.pnj"/>
+<img width="2047" height="60" alt="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj" src="https://64.media.tumblr.com/4db1ef0b899746c27ab49fc0c2a30af7/008d07d50dd6877b-69/s640x960/ee5aec5622344e783e8f1ebd9afafe009c5f8eac.pnj"/>
 
 $\color{lightpink}\Huge{\textsf{ᡕ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆}}$ <br>
-<img width="1280" height="429" alt="Mayumixx" src="https://64.media.tumblr.com/b8c2e2f9523e706a3c27656fc182d23c/d083df8da3513e0a-e5/s2048x3072/dea5e8658b68a53bc95b383a7fed8e20083fcb1a.pnj"/>
+<img width="1280" height="429" alt="Mayumixx" src="https://64.media.tumblr.com/fd4278e42eeb49e35b5e39f63ef1a7a3/92e7e431782b7c99-47/s1280x1920/11209619a1c9f5bd03203e7c8b96ff1edae78b2b.pnj"/>
