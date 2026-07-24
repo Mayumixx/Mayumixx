@@ -1,5 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://64.media.tumblr.com/f313ef6178ee7be9ec8a497d79bc68cb/0076baddc1efebbd-ee/s2048x3072/10d4389b14ce70697f26055748b70d14a7f2b54a.pnj" width="550" />
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="side" src="https://64.media.tumblr.com/f313ef6178ee7be9ec8a497d79bc68cb/0076baddc1efebbd-ee/s2048x3072/10d4389b14ce70697f26055748b70d14a7f2b54a.pnj" width="550" />
+<p align="">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=darkred&right_color=black&left_text=Books!"/>
+  <br>
+  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://64.media.tumblr.com/36e91e58659de7e33c583853f1db8c1e/6f3a802d85d3d637-e9/s2048x3072/5836c6bba91b03e06d98c74fd39fdf8e2bfae9a5.pnj" alt="image" width="550" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤ                               [atabook !](https://yumixx.atabook.org/)ㅤ  ㅤ ♡ㅤ  ㅤ (working on strawpage)ㅤㅤ
