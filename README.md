@@ -4,3 +4,7 @@
 
    <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Cedarville+Cursive&size=25&duration=3000&pause=1000&color=eeeee=true&width=650&lines=%E2%80%98I'll+be+fine.+You've-seen+how+much+ass+i+kick.%E2%80%99;%E2%80%98I+don't+care!+,+dont+want+anyone+else+to+die,+please.+'%E2%80%99;%E2%80%98You+gotta+be+better+than+this...+If+you're+gonna+play+hero.%E2%80%99;%E2%80%98I'm+sick+of+this.+I'm+sick+of+all+of+this..%E2%80%99"/>
+
+   <p align="center">
+
+<img src="https://visitor-badge.laobi.icu/badge?page_id=MayumixxS&left_color=black&right_color=black&left_text=Angle's"/>
