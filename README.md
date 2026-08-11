@@ -20,8 +20,6 @@ someone pls teach me or send a link to a website on how to... do those animation
 
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
 
-​🇵​​🇴​​🇳​​🇾​ ​🇹​​🇴​​🇼​​🇳​ ​🇳​​🇴​​🇲​​🇮​​🇳​​🇪​​🇪​​🇸​ • ​🇹​​🇮​​🇹​​🇹​​🇱​​🇪​​🇸​ • ​🇦​​🇼​​🇦​​🇷​​🇩​​🇸
-
-Not yet sure since i've receive some message,,..
+​
 
 <img src="https://64.media.tumblr.com/089b3c58e3510c0f0aec11c8f2a15981/7a2a2ebc0f619da5-01/s2048x3072/6cd7b133f2661ba7eb22a72125f21caa2f35d261.pnj">
