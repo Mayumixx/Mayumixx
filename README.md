@@ -22,4 +22,20 @@
 
 ​something here... idk yet pls help me.... 
 
+<div align="center">
+<details>
+  <summary> 𝐂𝐑𝐄𝐃𝐈𝐓𝐒 !</summary>
+  <br>
+   𝐁𝐀𝐍𝐍𝐄𝐑 - @abudasima (first banner on tumblr)
+  <br> <br>
+  𝐃𝐄𝐕𝐈𝐃𝐄𝐑𝐒 -  (i forgots... but it is in tumblr !)
+  <br> <br>
+  𝐀𝐍𝐈𝐌𝐀𝐓𝐈𝐎𝐍 𝐓𝐘𝐏𝐈𝐍𝐆𝐒 - DenverCoder1 (on GITHUB here is link: https://github.com/DenverCoder1/readme-typing-svg) BIGG THANK YOU TO (COUNTRY-HUMANS - loveruffle in GITHUB) FOR HELPING ME WITH THIISSS SMOOCHES
+  <br> <br>
+  𝐏𝐍𝐆𝐒 - all edited by me! 
+  <br> <br>
+  𝐏𝐥𝐞𝐚𝐬𝐞 𝐦𝐞𝐬𝐬𝐚𝐠𝐞 𝐦𝐞 𝐭𝐡𝐫𝐨𝐮𝐠𝐡 𝐚𝐭𝐚 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐧𝐚 𝐤𝐧𝐨𝐰 𝐰𝐡𝐞𝐫𝐞 𝐢 𝐠𝐨𝐭 𝐦𝐨𝐬𝐭 𝐨𝐟 𝐦𝐲 𝐬𝐭𝐮𝐟𝐟 𝐢𝐧 𝐦𝐲 𝐨𝐭𝐡𝐞𝐫 𝐬𝐢𝐭𝐞𝐬 ! ^^  
+  <br>   <br>
+  </details>
+
 <img src="https://64.media.tumblr.com/089b3c58e3510c0f0aec11c8f2a15981/7a2a2ebc0f619da5-01/s2048x3072/6cd7b133f2661ba7eb22a72125f21caa2f35d261.pnj">
