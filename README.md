@@ -32,7 +32,7 @@
   <br> <br>
   𝐀𝐍𝐈𝐌𝐀𝐓𝐈𝐎𝐍 𝐓𝐘𝐏𝐈𝐍𝐆𝐒 - DenverCoder1 (on GITHUB here is link: https://github.com/DenverCoder1/readme-typing-svg) BIGG THANK YOU TO (COUNTRY-HUMANS - loveruffle in GITHUB) FOR HELPING ME WITH THIISSS SMOOCHES
   <br> <br>
-  𝐏𝐍𝐆𝐒 - all edited by me! 
+  𝐏𝐍𝐆𝐒 - all edited by me! (pfp by euryclea.lilly on tt and eurycleaa in pinterest)
   <br> <br>
   𝐏𝐥𝐞𝐚𝐬𝐞 𝐦𝐞𝐬𝐬𝐚𝐠𝐞 𝐦𝐞 𝐭𝐡𝐫𝐨𝐮𝐠𝐡 𝐚𝐭𝐚 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐧𝐚 𝐤𝐧𝐨𝐰 𝐰𝐡𝐞𝐫𝐞 𝐢 𝐠𝐨𝐭 𝐦𝐨𝐬𝐭 𝐨𝐟 𝐦𝐲 𝐬𝐭𝐮𝐟𝐟 𝐢𝐧 𝐦𝐲 𝐨𝐭𝐡𝐞𝐫 𝐬𝐢𝐭𝐞𝐬 ! ^^  
   <br>   <br>
