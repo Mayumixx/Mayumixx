@@ -20,7 +20,8 @@
 
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
 
-​something here... idk yet pls help me.... 
+​ᴘᴏɴʏ ᴛᴏᴡɴ ɴᴏᴍɪɴᴇᴇꜱ​ • ᴛɪᴛᴛʟᴇꜱ​ • ᴀᴡᴀʀᴅꜱ
+(not sure yet helps...)
 
 <div align="center">
 <details>
