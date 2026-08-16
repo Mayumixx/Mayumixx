@@ -21,7 +21,8 @@
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
 
 ​ᴘᴏɴʏ ᴛᴏᴡɴ ɴᴏᴍɪɴᴇᴇꜱ​ • ᴛɪᴛᴛʟᴇꜱ​ • ᴀᴡᴀʀᴅꜱ
-(not sure yet helps...)
+<br>
+ ‎ ‎ ‎ <a href="https://github.com/title-town">𝓉𝒾𝓉𝓁𝑒 𝓉𝑜𝓌𝓃</a>‎  .‎  <a href="https://github.com/pt-hall-of-media">𝓅𝓉-𝒽𝒶𝓁𝓁-𝑜𝒻-𝓂𝑒𝒹𝒾𝒶</a> ‎ .‎  <a href="https://github.com/ponytown-nominations">𝓅𝑜𝓃𝓎𝓉𝑜𝓌𝓃-𝓃𝑜𝓂𝒾𝓃𝒶𝓉𝒾𝑜𝓃𝓈</a> ‎ . ‎ <a href="https://github.com/pt-fashion">𝓅𝓉 𝒻𝒶𝓈𝒽𝒾𝑜𝓃</a> ‎ .‎  <a href="https://github.com/pt-friendships">𝓅𝓉-𝒻𝓇𝒾𝑒𝓃𝒹𝓈𝒽𝒾𝓅𝓈</a> ‎ . ‎ <a href="https://github.com/ponychievements">𝓅𝑜𝓃𝓎𝒸𝒽𝒾𝑒𝓋𝑒𝓂𝑒𝓃𝓉𝓈</a> ‎ ‎ & ‎ ‎ <a href="https://github.com/pt-contributers">ᴘᴛ-ᴄᴏɴᴛʀɪʙᴜᴛᴇʀꜱ!</a>‎ ‎ ‎  
 
 <div align="center">
 <details>
