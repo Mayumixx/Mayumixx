@@ -10,7 +10,7 @@
 
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
 
-<img width="1500" height="1000" alt=" " src="https://media.discordapp.net/attachments/1131226977253204020/1535756167383355502/Untitled4_20260809050346.png?ex=6a78ebe3&is=6a779a63&hm=21765eb68c8695eff951afd9f7bf1f1a1cd6d0b8464b2f8939370b32fd223d47&=&format=webp&quality=lossless&width=1024&height=682" />
+<img width="1500" height="1000" alt=" " src="https://media.discordapp.net/attachments/1131226977253204020/1535756167383355502/Untitled4_20260809050346.png?ex=6a857223&is=6a8420a3&hm=ac22b670b2c45f1a07f92fd27dca00b920d586c3edce0b73d434ef462ffb0de4&=&format=webp&quality=lossless&width=1024&height=682&=&format=webp&quality=lossless&width=1024&height=682" />
 
   <br>
 
