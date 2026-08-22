@@ -22,7 +22,7 @@
 
 ​ᴘᴏɴʏ ᴛᴏᴡɴ ɴᴏᴍɪɴᴇᴇꜱ​ • ᴛɪᴛᴛʟᴇꜱ​ • ᴀᴡᴀʀᴅꜱ
 <br>
- ཧོ‎ ‎ ‎ <a href="https://github.com/title-town">𝓉𝒾𝓉𝓁𝑒 𝓉𝑜𝓌𝓃</a>‎  .‎  ‎<a href="https://github.com/ponytowncosplayers">𝓅𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝒸𝑜𝓈𝓅𝓁𝒶𝓎𝑒𝓇𝓈</a>‎  .‎  ‎‎<a href="https://github.com/pt-hall-of-media">𝓅𝓉-𝒽𝒶𝓁𝓁-𝑜𝒻-𝓂𝑒𝒹𝒾𝒶</a> ‎ .‎  <a href="https://github.com/ponytown-nominations">𝓅𝑜𝓃𝓎𝓉𝑜𝓌𝓃-𝓃𝑜𝓂𝒾𝓃𝒶𝓉𝒾𝑜𝓃𝓈</a> ‎ . ‎ <a href="https://github.com/pt-fashion">𝓅𝓉 𝒻𝒶𝓈𝒽𝒾𝑜𝓃</a> ‎ .‎  <a href="https://github.com/pt-friendships">𝓅𝓉-𝒻𝓇𝒾𝑒𝓃𝒹𝓈𝒽𝒾𝓅𝓈</a> ‎  ‎ ‎ & ‎ ‎ ‎ <a href="https://github.com/ponychievements">𝓅𝑜𝓃𝓎𝒸𝒽𝒾𝑒𝓋𝑒𝓂𝑒𝓃𝓉𝓈</a> ‎   .ᐟ
+ ཧོ‎ ‎ ‎ <a href="https://github.com/title-town">𝓉𝒾𝓉𝓁𝑒 𝓉𝑜𝓌𝓃</a>‎  .‎  ‎<a href="https://github.com/ponytowncosplayers">𝓅𝑜𝓃𝓎𝓉𝑜𝓌𝓃𝒸𝑜𝓈𝓅𝓁𝒶𝓎𝑒𝓇𝓈</a>‎  .‎  ‎‎<a href="https://github.com/pt-hall-of-media">𝓅𝓉-𝒽𝒶𝓁𝓁-𝑜𝒻-𝓂𝑒𝒹𝒾𝒶</a>  ‎ .‎ ‎ <a href="https://github.com/ponytown-nominations">𝓅𝑜𝓃𝓎𝓉𝑜𝓌𝓃-𝓃𝑜𝓂𝒾𝓃𝒶𝓉𝒾𝑜𝓃𝓈</a> ‎ . ‎ <a href="https://github.com/pt-medals">𝓅𝓉 𝓂𝑒𝒹𝒶𝓁𝓈</a> ‎ . ‎ <a href="https://github.com/pt-fashion">𝓅𝓉 𝒻𝒶𝓈𝒽𝒾𝑜𝓃</a> ‎ . ‎ ‎<a href="https://github.com/pt-friendships">𝓅𝓉-𝒻𝓇𝒾𝑒𝓃𝒹𝓈𝒽𝒾𝓅𝓈</a> ‎  ‎ ‎ & ‎ ‎ ‎ <a href="https://github.com/ponychievements">𝓅𝑜𝓃𝓎𝒸𝒽𝒾𝑒𝓋𝑒𝓂𝑒𝓃𝓉𝓈</a> ‎   .ᐟ
 
 <div align="center">
 <details>
