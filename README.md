@@ -28,7 +28,7 @@
 <details>
   <summary> 𝓅𝓉-𝒻𝓇𝒾𝑒𝓃𝒹𝓈𝒽𝒾𝓅𝓈 !</summary>
 <p align="center">
-<img <a  src="https://media.discordapp.net/attachments/1131226977253204020/1538351332942020668/Screenshot_907.png?ex=6a825cd2&is=6a810b52&hm=a2fa64bf12091f91b946f33882cc5141bac53c5ac81baf3246d93fac01a4a060&=&format=webp&quality=lossless&=&format=webp&quality=lossless&width=1100&height=150"/> </a><img <a  src="https://media.discordapp.net/attachments/1131226977253204020/1538351333164454019/IMG_2397.png?ex=6a825cd3&is=6a810b53&hm=c88a6998de3510a6860214ab21022a6ffbd5aaed9276f6b16ca63f540859beee&=&format=webp&quality=lossless&=&format=webp&quality=lossless&width=1200&height=150"/> </a>
+<img <a  src="https://media.discordapp.net/attachments/1131226977253204020/1538351332942020668/Screenshot_907.png?ex=6a962352&is=6a94d1d2&hm=9925e068218c33bc7dda96b66d42d18557d2e2642dd2b6da3017293e3049dfb4&=&format=webp&quality=lossless"/> </a><img <a  src="https://media.discordapp.net/attachments/1131226977253204020/1538351333164454019/IMG_2397.png?ex=6a962353&is=6a94d1d3&hm=b16c2f3e6184e954f5866a544ff3029a87f8f188857afa2a6c417f9acccd61c6&=&format=webp&quality=lossless"/> </a>
 </p>
 </details>
 
