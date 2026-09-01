@@ -10,12 +10,12 @@
 
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
 
-<img width="1500" height="1000" alt=" " src="https://media.discordapp.net/attachments/1131226977253204020/1535756167383355502/Untitled4_20260809050346.png?ex=6a95ece3&is=6a949b63&hm=d8d246b85e405c9bdc59d8e9051b680a1358165018d56b556dc78f72e6f5fa21&=&format=webp&quality=lossless&width=1024&height=682" />
+<img width="1500" height="1000" alt=" " src="https://media.discordapp.net/attachments/1131226977253204020/1535756167383355502/Untitled4_20260809050346.png?ex=6a973e63&is=6a95ece3&hm=6dab0af2f642fd8b08f0ad9316a1de137b4892c92950b7d5974f4977d23f50a7&=&format=webp&quality=lossless&width=1024&height=682" />
 
   <br>
 
 <p align="center">
- <a href="https://yumixx.atabook.org/"><img src="https://media.discordapp.net/attachments/1131226977253204020/1535778939451089006/Untitled6_20260809063657.png?ex=6a960218&is=6a94b098&hm=c0674105c6d0642f68fd04e0f7dcb2372f83f6c0d93bf53f4bf019213456096d&=&format=webp&quality=lossless&width=150&height=150"/> </a>　　　<a href="https://myumixx.straw.page/"><img src="https://media.discordapp.net/attachments/1131226977253204020/1535779794552225894/Untitled6_20260809064027.png?ex=6a858824&is=6a8436a4&hm=ecdc9d3088ac78f2c1dd58c2cfb778802921f5a43876ecf8b16a2e1353cae242&=&format=webp&quality=lossless&width=150&height=150"/> </a>　　　<a href="https://en.pronouns.page/@youryumii"><img src="https://media.discordapp.net/attachments/1131226977253204020/1539746250054697061/Untitled6_20260820052140.png?ex=6a95f071&is=6a949ef1&hm=26f58944e455a9bdbddfa1ed1f132188fb7800104d2bbc288de6df3006665dbf&=&format=webp&quality=lossless&width=150&height=150"/> </a>
+ <a href="https://yumixx.atabook.org/"><img src="https://media.discordapp.net/attachments/1131226977253204020/1535778939451089006/Untitled6_20260809063657.png?ex=6a975398&is=6a960218&hm=a44cf864a798703ae150681d388d747fcf084dfbed08e870d00842ce377acac7&=&format=webp&quality=lossless&width=150&height=150"/> </a>　　　<a href="https://myumixx.straw.page/"><img src="https://media.discordapp.net/attachments/1131226977253204020/1535779794552225894/Untitled6_20260809064027.png?ex=6a858824&is=6a8436a4&hm=ecdc9d3088ac78f2c1dd58c2cfb778802921f5a43876ecf8b16a2e1353cae242&=&format=webp&quality=lossless&width=150&height=150"/> </a>　　　<a href="https://en.pronouns.page/@youryumii"><img src="https://media.discordapp.net/attachments/1131226977253204020/1539746250054697061/Untitled6_20260820052140.png?ex=6a95f071&is=6a949ef1&hm=26f58944e455a9bdbddfa1ed1f132188fb7800104d2bbc288de6df3006665dbf&=&format=webp&quality=lossless&width=150&height=150"/> </a>
 </p>
 
 <img src="https://64.media.tumblr.com/efdfe0ca510c739711fcb3f84b8c651b/fddc41519840151a-17/s1280x1920/56bbe2c0310ed2e0a8524c57998739eaf0d90ae6.pnj" width="1000">
